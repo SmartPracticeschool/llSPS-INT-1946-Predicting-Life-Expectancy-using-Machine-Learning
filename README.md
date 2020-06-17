@@ -8,4 +8,4 @@ https://youtu.be/K-KcfQp8Bk8
 
 Predecting Life Expetency using Machine Learning
 
-https://youtu.be/ZdQHY_p7Y3whttps://youtu.be/ZdQHY_p7Y3w
+https://youtu.be/ZdQHY_p7Y3w
